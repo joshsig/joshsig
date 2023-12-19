@@ -1,4 +1,4 @@
-### Hey Guys! 👋
+### Hey Folks! 👋
 
 ##### Fourth Year Computer Science student at the University of Manitoba!
 
